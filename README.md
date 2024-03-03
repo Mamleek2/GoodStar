@@ -1,0 +1,2 @@
+# GoodStar
+Hi! Just hi
